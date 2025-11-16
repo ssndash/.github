@@ -1,2 +1,4 @@
-шалом братки
-гуга петух
+EVERYBODY NEED  sssnDash
+BURN SSNDASHS B
+BRUN CSS BURN HML 
+BU
