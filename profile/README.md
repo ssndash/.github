@@ -1,4 +1,1 @@
-EVERYBODY NEED  sssnDash
-BURN SSNDASHS B
-BRUN CSS BURN HML 
-BU
+Мы команда СВО - система водяного охлаждения
